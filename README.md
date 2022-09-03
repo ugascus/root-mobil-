@@ -1,0 +1,2 @@
+# root-mobil-
+uksomali
